@@ -112,10 +112,4 @@ Dívidas com juros altos (como o rotativo do cartão de crédito) podem se torna
 9. Porque as taxas de juros cobradas em dívidas (passivos) costumam ser muito superiores aos retornos históricos de investimentos seguros, tornando financeiramente mais lógico eliminar o dreno de juros primeiro.
 10. Renda passiva é o dinheiro que entra sem depender do esforço direto de trabalho (ex: dividendos). Ela alimenta o ciclo da prosperidade ao ser reinvestida para adquirir mais ativos, gerando um efeito de juros compostos.
 
-
-
-
-
-
-
 tido em ativos seguros e líquidos para cobrir gastos essenciais em situações imprevistas.
